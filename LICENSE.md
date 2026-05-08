@@ -1,4 +1,4 @@
-
+hooked Script premium offers the most advanced hooked Script, with esp and unlimited stamina. Perfect for dominating any match.
 
 
 
